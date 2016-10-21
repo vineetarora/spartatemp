@@ -1,0 +1,2 @@
+# spartatemp
+delete ho jaayega
